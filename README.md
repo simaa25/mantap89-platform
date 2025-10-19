@@ -1,5 +1,3 @@
-# Sinarplus62 Platform
+# Mantap89 Platform
 
-Sinarplus62 adalah platform edukasi digital yang membantu siswa dan guru di seluruh Indonesia.
-
-Kunjungi situs resmi kami 👉 [https://mantap89gaspol.com/](https://mantap89gaspol.com/)
+Website rekomendasi game online populer di tahun 2025, yang juga menyediakan link resmi untuk mendaftar permainan terbaik saat ini MANTAP89 ⚡ Rekomendasi Game Online Populer Terbaik Tahun 2025 👉 [https://mantap89gaspol.com/](https://mantap89gaspol.com/)
